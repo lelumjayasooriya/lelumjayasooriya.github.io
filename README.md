@@ -1,2 +1,0 @@
-# lelumjayasooriya.github.io
-web
